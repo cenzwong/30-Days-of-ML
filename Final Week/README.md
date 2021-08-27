@@ -22,3 +22,6 @@ You’ll get another email from us soon before the competition closes, with deta
 
 Happy learning,
 Alexis
+
+
+https://www.youtube.com/playlist?list=PLqFaTIg4myu9uAPsqXBBZRr8kcj9IvAIf
